@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-belajar menyenangkan
+Tentunya belajar menyenangkan
